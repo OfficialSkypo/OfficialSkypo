@@ -7,6 +7,7 @@ I currently have a sh*t ton of fun managing marketing & pr @ a very cool hosting
 > - Graphical Design
 > - Video Editing
 > - Digital Marketing & Advertising
+> - Partner Management
 > - Social Media Management
 > - Community Management
 > - Web Development
