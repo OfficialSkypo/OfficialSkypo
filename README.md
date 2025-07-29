@@ -1,4 +1,4 @@
-<img src="https://i.imgur.com/2RgZ2HF.gif" height="200px"></img>
+<img src="["https://i.imgur.com/iRgBzwr.png" height="200px"></img>
 ### Kifflom! 👋 My name is Skypo. <i>(yes my name is inspired by the sh*tty app Skype)</i><hr>
 I'm a nerd, allround creative guy, entrepreneur & a proud dad of 1.<br>
 I currently have a sh*t ton of fun managing marketing & pr @ a very cool hosting company & running some own side businesses. 😎
